@@ -51,3 +51,21 @@ Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
+
+"This man's just gotta go", declared his enemies
+But the ladies begged, "Don't you try to do it, please"
+No doubt this Rasputin had lots of hidden charms
+Though he was a brute, they just fell into his arms
+Then one night, some men of higher standing
+Set a trap, they're not to blame
+"Come to visit us", they kept demanding
+And he really came
+
+Ra-Ra-Rasputin, lover of the Russian Queen
+They put some poison into his wine
+Ra-Ra-Rasputin, Russia's greatest love machine
+He drank it all and he said, "I feel fine"
+Ra-Ra-Rasputin, lover of the Russian Queen
+They didn't quit, they wanted his head
+Ra-Ra-Rasputin, Russia's greatest love machine
+And so they shot him 'til he was dead
