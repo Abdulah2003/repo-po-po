@@ -1,11 +1,10 @@
 Hello World!
 
-erqaeasasdrsedfse
-readadaeddadadvad
-
-ssaaweaeaeaaw
-raeaedasdsdagvrg
-
-5sjsthsrtdtjde5uthyde5y6u6
-esrtsthsxftsxgtdxgdxrgcdgy
-98r7yfri7yfr67ir6ie56i6ej56
+There lived a certain man in Russia long ago
+He was big and strong, in his eyes a flaming glow
+Most people look at him with terror and with fear
+But to Moscow chicks, he was such a lovely dear
+He could preach the Bible like a preacher
+Full of ecstasy and fire
+But he also was the kind of teacher
+Women would desire
