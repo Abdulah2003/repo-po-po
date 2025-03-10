@@ -28,3 +28,12 @@ Ra-Ra-Rasputin, lover of the Russian Queen
 There was a cat that really was gone
 Ra-Ra-Rasputin, Russia's greatest love machine
 It was a shame how he carried on
+
+He ruled the Russian land and never mind the Tsar
+But the kazachok, he danced really wunderbar
+In all affairs of state, he was the man to please
+But he was real great when he had a girl to squeeze
+For the Queen, he was no wheeler dealer
+Though she'd heard the things he'd done
+She believed he was a holy healer
+Who would heal her son
