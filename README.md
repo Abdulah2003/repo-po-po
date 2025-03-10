@@ -46,3 +46,8 @@ It was a shame how he carried on
 But when his drinking and lusting and his hunger for power
 Became known to more and more people
 The demands to do something about this outrageous man became louder and louder
+
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
