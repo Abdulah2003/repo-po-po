@@ -42,3 +42,7 @@ Ra-Ra-Rasputin, lover of the Russian Queen
 There was a cat that really was gone
 Ra-Ra-Rasputin, Russia's greatest love machine
 It was a shame how he carried on
+
+But when his drinking and lusting and his hunger for power
+Became known to more and more people
+The demands to do something about this outrageous man became louder and louder
