@@ -8,3 +8,9 @@ He could preach the Bible like a preacher
 Full of ecstasy and fire
 But he also was the kind of teacher
 Women would desire
+
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
+Hey, hey, hey, hey, hey, hey, hey, hey
