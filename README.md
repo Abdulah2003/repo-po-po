@@ -14,3 +14,12 @@ Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
 Hey, hey, hey, hey, hey, hey, hey, hey
+
+There lived a certain man in Russia long ago
+He was big and strong, in his eyes, a flaming glow
+Most people look at him with terror and with fear
+But to Moscow chicks, he was such a lovely dear
+He could preach the Bible like a preacher
+Full of ecstasy and fire
+But he also was the kind of teacher
+Women would desire
