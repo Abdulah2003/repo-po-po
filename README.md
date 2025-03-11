@@ -75,3 +75,8 @@ Maybe not emperor but a top-notch leader haa.
 
 Angry and calm, paptient and eager.
 Maybe not emperor but a top-notch leader haa.
+
+My heart is cold, me moves are bold...
+Did you know I saved reporter from a tiger attack!
+Did you know I drove Formul-1 car on the race track!
+Did you know I fight jiu-jitsu one hand on my back!
