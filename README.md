@@ -69,3 +69,6 @@ Ra-Ra-Rasputin, lover of the Russian Queen
 They didn't quit, they wanted his head
 Ra-Ra-Rasputin, Russia's greatest love machine
 And so they shot him 'til he was dead
+
+Angry and calm, paptient and eager.
+Maybe not emperor but a top-notch leader haa.
